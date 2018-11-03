@@ -1,4 +1,3 @@
-# Ezekiel Profile
 
 ## Ezekiel
 

@@ -1,4 +1,3 @@
-# Asa Profile
 
 ## Asa
 

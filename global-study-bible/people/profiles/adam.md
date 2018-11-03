@@ -1,4 +1,3 @@
-# Adam Profile
 
 ## Adam
 

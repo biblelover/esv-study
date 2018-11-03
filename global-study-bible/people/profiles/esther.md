@@ -1,4 +1,3 @@
-# Esther Profile
 
 ## Esther
 

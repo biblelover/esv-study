@@ -1,4 +1,3 @@
-# Esau Profile
 
 ## Esau
 

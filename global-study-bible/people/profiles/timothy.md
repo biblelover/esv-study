@@ -1,4 +1,3 @@
-# Timothy Profile
 
 ## Timothy
 

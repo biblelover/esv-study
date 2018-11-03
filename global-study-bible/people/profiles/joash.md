@@ -1,4 +1,3 @@
-# Joash Profile
 
 ## Joash
 

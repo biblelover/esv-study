@@ -1,4 +1,3 @@
-# Jehu Profile
 
 ## Jehu
 

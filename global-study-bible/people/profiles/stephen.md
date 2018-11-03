@@ -1,4 +1,3 @@
-# Stephen Profile
 
 ## Stephen
 

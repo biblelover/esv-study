@@ -1,4 +1,3 @@
-# Jephthah Profile
 
 ## Jephthah
 

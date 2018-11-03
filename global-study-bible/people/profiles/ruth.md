@@ -1,4 +1,3 @@
-# Ruth Profile
 
 ## Ruth
 

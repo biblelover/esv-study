@@ -1,4 +1,3 @@
-# Zephaniah Profile
 
 ## Zephaniah
 

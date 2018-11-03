@@ -1,4 +1,3 @@
-# Moses Profile
 
 ## Moses
 

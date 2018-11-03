@@ -1,4 +1,3 @@
-# Elihu Profile
 
 ## Elihu
 

@@ -1,4 +1,3 @@
-# Bathsheba Profile
 
 ## Bathsheba
 

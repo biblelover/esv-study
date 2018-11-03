@@ -1,4 +1,3 @@
-# Daniel Profile
 
 ## Daniel
 

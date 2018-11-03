@@ -1,4 +1,3 @@
-# Job Profile
 
 ## Job
 

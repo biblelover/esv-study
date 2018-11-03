@@ -1,4 +1,3 @@
-# Jezebel Profile
 
 ## Jezebel
 

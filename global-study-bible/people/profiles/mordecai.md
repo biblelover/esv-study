@@ -1,4 +1,3 @@
-# Mordecai Profile
 
 ## Mordecai
 

@@ -1,4 +1,3 @@
-# James Profile
 
 ## James
 

@@ -1,4 +1,3 @@
-# Rachel Profile
 
 ## Rachel
 

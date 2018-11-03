@@ -1,4 +1,3 @@
-# Abishai Profile
 
 ## Abishai
 

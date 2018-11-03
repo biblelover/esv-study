@@ -1,4 +1,3 @@
-# Ezra Profile
 
 ## Ezra
 

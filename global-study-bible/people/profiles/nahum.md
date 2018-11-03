@@ -1,4 +1,3 @@
-# Nahum Profile
 
 ## Nahum
 

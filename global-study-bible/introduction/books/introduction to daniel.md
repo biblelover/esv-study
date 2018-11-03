@@ -1,0 +1,29 @@
+
+# Introduction to Daniel
+
+## Timeline
+
+ [ <img src="https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/mediumhttps://www.esv.org/chart_27_timeline.png" alt="Timeline" width="700" height="73"/> ](https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/big/chart_27_timeline.png) 
+
+## Author and Date
+
+Daniel wrote this book in the sixth century b.c. It records the events of Daniel’s life and the visions that he saw from the time of his exile in 605 b.c. ([1:1](https://www.esv.org/Daniel+1%3A1/)) until 536 b.c., the third year of King Cyrus ([10:1](https://www.esv.org/Daniel+10%3A1/)).
+
+## Theme
+
+The book’s central theme is God’s sovereignty over history, empires, and kings ([2:21; 4:34–37](https://www.esv.org/Daniel+2%3A21%2C+4%3A34%E2%80%9337/)). All the kingdoms of this world will come to an end and will be replaced by the Lord’s kingdom, which will never pass away ([2:44; 7:27](https://www.esv.org/Daniel+2%3A44%2C+7%3A27/)). Though trials and difficulties will continue for God’s people up until the end, those who are faithful will be raised to glory, honor, and everlasting life in this final kingdom ([12:1–3](https://www.esv.org/Daniel+12%3A1%E2%80%933/)).
+
+## Key Themes
+1. It is possible to live a faithful life while surrounded by pagan influences, if one serves the Lord wholeheartedly (ch. [1](https://www.esv.org/Daniel+1%3A1%E2%80%9321/)). 1. God can give his faithful servants abilities that cause even unbelievers to appreciate them (chs. [2; 3; 6](https://www.esv.org/Daniel+2%3A1%E2%80%9349%2C+3%3A1%E2%80%9330%2C+6%3A1%E2%80%9328/)). Nevertheless, believers should not assume that God will always rescue them from harm ([3:16–18](https://www.esv.org/Daniel+3%3A16%E2%80%9318/)). 1. God humbles the proud and raises up the humble. Even the hearts of the greatest kings are under his control (chs. [4; 5](https://www.esv.org/Daniel+4%3A1%E2%80%9337%2C+5%3A1%E2%80%9331/)). 1. This world will be a place of persecution for God’s people, getting worse and worse rather than better and better (chs. [2; 7](https://www.esv.org/Daniel+2%3A1%E2%80%9349%2C+7%3A1%E2%80%9328/)). The Lord will judge the kingdoms of this world and bring them to an end, replacing them with his own kingdom that will never end. This kingdom will be ruled by “one like a son of man” who comes “with the clouds,” a figure who combines human and divine traits ([7:13](https://www.esv.org/Daniel+7%3A13/)). 1. God is sovereign over the course of history, even over those who rebel against him and seek to destroy his people (ch. [8](https://www.esv.org/Daniel+8%3A1%E2%80%9327/)). 1. The Babylonian exile was not the end of Israel’s history of rebellion and judgment. In the future, Israel would continue to sin against the Lord, and Jerusalem would be handed over to her enemies, who would damage her temple and do other offensive things (chs. [8; 9; 12](https://www.esv.org/Daniel+8%3A1%E2%80%9327%2C+9%3A1%E2%80%9327%2C+12%3A1%E2%80%9313/)). Eventually, though, the anointed ruler would come to deliver God’s people from their sins ([9:24–27](https://www.esv.org/Daniel+9%3A24%E2%80%9327/)). 1. These earthly events are reflections of a great conflict between angelic forces of good and evil (ch. [10](https://www.esv.org/Daniel+10%3A1%E2%80%9321/)). Prayer is a significant weapon in that conflict ([9:23](https://www.esv.org/Daniel+9%3A23/)). 1. God rules over all of these conflicts and events, he limits the damage they do, and he has a precise timetable for the end of his people’s persecutions. At that time he will finally intervene to cleanse and deliver his people (ch. [12](https://www.esv.org/Daniel+12%3A1%E2%80%9313/)). 1. In the meantime, believers must be patient and faithful in a hostile world, looking to the Lord alone for deliverance ([11:33–35](https://www.esv.org/Daniel+11%3A33%E2%80%9335/)). 
+## Outline
+
+The book of [Daniel](https://www.esv.org/Daniel+1%3A1%E2%80%9312%3A13/) is made up of two halves, each of which has its own literary style. The first half (chs. [1–6](https://www.esv.org/Daniel+1%3A1%E2%80%936%3A28/)) contains stories from the lives of Daniel and his three friends, Shadrach, Meshach, and Abednego. They show how God’s people should live in a world that is not their home (compare [Jer. 29:5–7](https://www.esv.org/Jeremiah+29%3A5%E2%80%937/); [Heb. 13:14](https://www.esv.org/Hebrews+13%3A14/)). The second half of the book ([Daniel 7–12](https://www.esv.org/Daniel+7%3A1%E2%80%9312%3A13/)) contains apocalyptic visions. They are designed to reassure God’s people that, in spite of their present persecution and suffering, God is in control and will ultimately be victorious.
+1. Daniel and the Three Friends at the Babylonian Court ([1:1–6:28](https://www.esv.org/Daniel+1%3A1%E2%80%936%3A28/)) 1. The Visions of Daniel ([7:1–12:13](https://www.esv.org/Daniel+7%3A1%E2%80%9312%3A13/)) 
+## The Setting of Daniel: The Babylonian Empire
+
+#### c. 605–536 b.c.
+
+Though their empire was short-lived by comparison with the Assyrians before them and the Persians after them, the Babylonians dominated the Near East during the early days of Daniel, and they were responsible for his initial exile to Babylon. Daniel himself, however, outlived the Babylonian Empire, which fell to the Persians in 538 b.c. (See also the map on p. 1163, “The Empires of Daniel’s Visions: The Persians.”)
+
+ [ <img src="https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/mediumhttps://www.esv.org/map_27_01.jpg" alt="The Setting of Daniel" width="700" height="579"/> ](https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/big/map_27_01.jpg) 
+

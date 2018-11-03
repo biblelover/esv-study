@@ -1,4 +1,3 @@
-# Eleazar Profile
 
 ## Eleazar
 

@@ -1,4 +1,3 @@
-# Boaz Profile
 
 ## Boaz
 

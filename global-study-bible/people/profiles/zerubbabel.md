@@ -1,4 +1,3 @@
-# Zerubbabel Profile
 
 ## Zerubbabel
 

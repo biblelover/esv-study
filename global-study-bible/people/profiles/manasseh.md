@@ -1,4 +1,3 @@
-# Manasseh Profile
 
 ## Manasseh
 

@@ -68,8 +68,6 @@ if __name__=="__main__":
 
         else:
             with open(file_path, "w", encoding="utf-8") as f:
-                f.write("# %s Profile\n" % profile.title())
-
                 for item in data:
                     text = get_text(item["url"])
                     text = re.sub("## people:.*?\n", 

@@ -1,4 +1,3 @@
-# Barnabas Profile
 
 ## Barnabas
 

@@ -1,4 +1,3 @@
-# Jehoshaphat Profile
 
 ## Jehoshaphat
 

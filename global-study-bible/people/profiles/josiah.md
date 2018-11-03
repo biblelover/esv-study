@@ -1,4 +1,3 @@
-# Josiah Profile
 
 ## Josiah
 

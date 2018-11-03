@@ -1,4 +1,3 @@
-# Nicodemus Profile
 
 ## Nicodemus
 

@@ -1,4 +1,3 @@
-# Elijah Profile
 
 ## Elijah
 

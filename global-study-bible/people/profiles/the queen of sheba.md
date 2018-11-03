@@ -1,4 +1,3 @@
-# The Queen Of Sheba Profile
 
 ## The Queen of Sheba
 

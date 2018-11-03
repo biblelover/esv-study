@@ -1,4 +1,3 @@
-# Sarah Profile
 
 ## Sarah
 

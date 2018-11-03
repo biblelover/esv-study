@@ -1,0 +1,31 @@
+
+# Introduction to Proverbs
+
+## Timeline
+
+ [ <img src="https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/mediumhttps://www.esv.org/chart_20_timeline.png" alt="Timeline" width="700" height="52"/> ](https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/big/chart_20_timeline.png) 
+
+## Author and Date
+
+[Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) itself mentions Solomon (reigned c. 971–931 b.c.) as author or collector of its contents ([1:1; 10:1](https://www.esv.org/Proverbs+1%3A1%2C+10%3A1/)), including the proverbs copied by Hezekiah’s men ([25:1](https://www.esv.org/Proverbs+25%3A1/)). There are also two batches of sayings from a group called “the wise” ([22:17–24:22; 24:23–34](https://www.esv.org/Proverbs+22%3A17%E2%80%9324%3A22%2C+24%3A23%E2%80%9334/)), and “oracles” from Agur ([30:1–33](https://www.esv.org/Proverbs+30%3A1%E2%80%9333/)) and Lemuel ([31:1–9](https://www.esv.org/Proverbs+31%3A1%E2%80%939/)). No author is named for the song in praise of the excellent wife that ends the book ([31:10–31](https://www.esv.org/Proverbs+31%3A10%E2%80%9331/)). Although [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) was begun in the time of Solomon, it probably was not in its present form until the time of Hezekiah (reigned c. 715–686 b.c.).
+
+## Theme
+
+The goal of the book is stated right at the beginning ([1:1–7](https://www.esv.org/Proverbs+1%3A1%E2%80%937/)): to describe what wisdom is and to help God’s people become wise. Wisdom is founded in the “fear of the Lord,” and it enables believers to express their faith in the practical details of everyday life.
+
+## Audience
+
+The book is addressed to a young man. The situations he will face while he is young receive much attention. These situations supply concrete examples from which all readers can apply lessons to their own lives. Anyone who is wise and who pays attention will benefit ([1:5](https://www.esv.org/Proverbs+1%3A5/)) from this instruction.
+
+## Reading Proverbs
+
+The reader of [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) must seek to understand the various types of people the book describes. The most obvious characters in the book are the wise, the fool, and the simple. [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) urges its readers to be wise, which means embracing God’s covenant and living out the covenant in everyday situations (compare [2:2; 10:1](https://www.esv.org/Proverbs+2%3A2%2C+10%3A1/)). The fool is the person who constantly opposes God’s covenant ([1:7b](https://www.esv.org/Proverbs+1%3A7/)). The simple is the person who is not firmly committed, either to wisdom or to folly; he is easily misled ([14:15](https://www.esv.org/Proverbs+14%3A15/)).
+
+The first nine chapters of [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) are “wisdom poems” that urge the reader to pursue wisdom. The main section of [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/)—the concise, memorable statements of two or three lines—begins in [10:1](https://www.esv.org/Proverbs+10%3A1/). [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) often seem to be mere observations about life, but their deeper meanings will reveal themselves if the following questions are kept in mind: ([1](https://www.esv.org/Proverbs+1%3A1%E2%80%9333/)) What virtue does this proverb commend? ([2](https://www.esv.org/Proverbs+2%3A1%E2%80%9322/)) What vice does it disapprove of? ([3](https://www.esv.org/Proverbs+3%3A1%E2%80%9335/)) What value does it affirm?
+
+## Key Themes
+
+[Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) offers wisdom on a wide array of topics from daily life: diligence and laziness ([6:6–11](https://www.esv.org/Proverbs+6%3A6%E2%80%9311/)); friendship ([3:27–28; 18:24](https://www.esv.org/Proverbs+3%3A27%E2%80%9328%2C+18%3A24/)); speech ([10:19–21](https://www.esv.org/Proverbs+10%3A19%E2%80%9321/)); marriage ([18:22; 19:14](https://www.esv.org/Proverbs+18%3A22%2C+19%3A14/)); child rearing ([22:6](https://www.esv.org/Proverbs+22%3A6/)); domestic peace ([15:17; 17:1](https://www.esv.org/Proverbs+15%3A17%2C+17%3A1/)); work ([11:1](https://www.esv.org/Proverbs+11%3A1/)); getting along and good manners ([23:1–2; 25:16–17; 26:17–19; 27:14](https://www.esv.org/Proverbs+23%3A1%E2%80%932%2C+25%3A16%E2%80%9317%2C+26%3A17%E2%80%9319%2C+27%3A14/)); eternity ([14:32; 23:17–18](https://www.esv.org/Proverbs+14%3A32%2C+23%3A17%E2%80%9318/)); and much more. It shows that “godliness is of value in every way, as it holds promise for the present life and also for the life to come” ([1 Tim. 4:8](https://www.esv.org/1+Timothy+4%3A8/)).
+1. God’s will is intensely practical, applying to every aspect of life. A proper relation to God involves trying hard to understand his truth, and then embracing and obeying that truth. 1. A life lived by God’s will is a happy life ([3:21–26](https://www.esv.org/Proverbs+3%3A21%E2%80%9326/)). 1. A life lived by God’s will is a useful life ([3:27–28; 12:18, 25](https://www.esv.org/Proverbs+3%3A27%E2%80%9328%2C+12%3A18%2C+12%3A25/)). 1. A life lived by God’s will does not just happen. One must seek after it ([9:1–6](https://www.esv.org/Proverbs+9%3A1%E2%80%936/)). 
+## Outline
+1. Title, Goal, and Motto ([1:1–7](https://www.esv.org/Proverbs+1%3A1%E2%80%937/)) 1. A Father’s Invitation to Wisdom ([1:8–9:18](https://www.esv.org/Proverbs+1%3A8%E2%80%939%3A18/)) 1. [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) of Solomon ([10:1–22:16](https://www.esv.org/Proverbs+10%3A1%E2%80%9322%3A16/)) 1. The Thirty Sayings of “the Wise” ([22:17–24:22](https://www.esv.org/Proverbs+22%3A17%E2%80%9324%3A22/)) 1. Further Sayings of “the Wise” ([24:23–34](https://www.esv.org/Proverbs+24%3A23%E2%80%9334/)) 1. Hezekiah’s Collection of Solomonic [Proverbs](https://www.esv.org/Proverbs+1%3A1%E2%80%9331%3A31/) ([25:1–29:27](https://www.esv.org/Proverbs+25%3A1%E2%80%9329%3A27/)) 1. The Sayings of Agur ([30:1–33](https://www.esv.org/Proverbs+30%3A1%E2%80%9333/)) 1. The Sayings of King Lemuel ([31:1–9](https://www.esv.org/Proverbs+31%3A1%E2%80%939/)) 1. An Alphabet of Womanly Excellence ([31:10–31](https://www.esv.org/Proverbs+31%3A10%E2%80%9331/)) 

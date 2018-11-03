@@ -1,4 +1,3 @@
-# Sennacherib Profile
 
 ## Sennacherib
 

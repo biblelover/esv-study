@@ -1,4 +1,3 @@
-# Paul Profile
 
 ## Paul
 

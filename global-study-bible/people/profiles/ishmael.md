@@ -1,4 +1,3 @@
-# Ishmael Profile
 
 ## Ishmael
 

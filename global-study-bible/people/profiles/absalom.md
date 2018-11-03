@@ -1,4 +1,3 @@
-# Absalom Profile
 
 ## Absalom
 

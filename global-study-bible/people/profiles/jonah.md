@@ -1,4 +1,3 @@
-# Jonah Profile
 
 ## Jonah
 

@@ -1,4 +1,3 @@
-# Joab Profile
 
 ## Joab
 

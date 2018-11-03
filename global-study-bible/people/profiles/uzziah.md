@@ -1,4 +1,3 @@
-# Uzziah Profile
 
 ## Uzziah
 

@@ -1,4 +1,3 @@
-# Cornelius Profile
 
 ## Cornelius
 

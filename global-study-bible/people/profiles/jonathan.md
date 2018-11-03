@@ -1,4 +1,3 @@
-# Jonathan Profile
 
 ## Jonathan
 

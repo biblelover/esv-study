@@ -1,4 +1,3 @@
-# Philip Profile
 
 ## Philip
 

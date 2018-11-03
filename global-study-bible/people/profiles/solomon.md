@@ -1,4 +1,3 @@
-# Solomon Profile
 
 ## Solomon
 

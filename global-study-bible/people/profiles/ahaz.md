@@ -1,4 +1,3 @@
-# Ahaz Profile
 
 ## Ahaz
 

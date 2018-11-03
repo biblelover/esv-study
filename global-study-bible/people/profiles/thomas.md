@@ -1,4 +1,3 @@
-# Thomas Profile
 
 ## Thomas
 

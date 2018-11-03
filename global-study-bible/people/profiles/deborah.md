@@ -1,4 +1,3 @@
-# Deborah Profile
 
 ## Deborah
 

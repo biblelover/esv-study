@@ -1,4 +1,3 @@
-# Abner Profile
 
 ## Abner
 

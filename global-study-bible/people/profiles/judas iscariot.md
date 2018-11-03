@@ -1,4 +1,3 @@
-# Judas Iscariot Profile
 
 ## Judas Iscariot
 

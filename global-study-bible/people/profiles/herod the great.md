@@ -1,4 +1,3 @@
-# Herod The Great Profile
 
 ## Herod the Great
 

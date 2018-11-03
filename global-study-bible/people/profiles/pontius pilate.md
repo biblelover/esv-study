@@ -1,4 +1,3 @@
-# Pontius Pilate Profile
 
 ## Pontius Pilate
 

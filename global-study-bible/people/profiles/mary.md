@@ -1,4 +1,3 @@
-# Mary Profile
 
 ## Mary
 

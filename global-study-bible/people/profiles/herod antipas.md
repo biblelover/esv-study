@@ -1,4 +1,3 @@
-# Herod Antipas Profile
 
 ## Herod Antipas
 

@@ -1,4 +1,3 @@
-# Hosea Profile
 
 ## Hosea
 

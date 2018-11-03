@@ -1,4 +1,3 @@
-# Hezekiah Profile
 
 ## Hezekiah
 

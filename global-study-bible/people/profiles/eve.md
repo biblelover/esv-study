@@ -1,4 +1,3 @@
-# Eve Profile
 
 ## Eve
 

@@ -1,4 +1,3 @@
-# Balaam Profile
 
 ## Balaam
 

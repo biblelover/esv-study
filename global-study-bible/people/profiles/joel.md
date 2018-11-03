@@ -1,4 +1,3 @@
-# Joel Profile
 
 ## Joel
 

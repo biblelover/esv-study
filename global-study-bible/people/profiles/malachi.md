@@ -1,4 +1,3 @@
-# Malachi Profile
 
 ## Malachi
 

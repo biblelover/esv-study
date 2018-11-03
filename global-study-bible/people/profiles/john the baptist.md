@@ -1,4 +1,3 @@
-# John The Baptist Profile
 
 ## John the Baptist
 

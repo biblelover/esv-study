@@ -1,4 +1,3 @@
-# Korah Profile
 
 ## Korah
 

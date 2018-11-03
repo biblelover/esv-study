@@ -1,4 +1,3 @@
-# Eli Profile
 
 ## Eli
 

@@ -1,4 +1,3 @@
-# Noah Profile
 
 ## Noah
 

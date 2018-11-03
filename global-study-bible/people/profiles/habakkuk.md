@@ -1,4 +1,3 @@
-# Habakkuk Profile
 
 ## Habakkuk
 

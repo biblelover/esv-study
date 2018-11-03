@@ -1,4 +1,3 @@
-# Mary, Sister Of Lazarus Profile
 
 ## Mary, Sister of Lazarus
 

@@ -1,4 +1,3 @@
-# Caleb Profile
 
 ## Caleb
 

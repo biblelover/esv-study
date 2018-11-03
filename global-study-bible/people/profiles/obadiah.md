@@ -1,4 +1,3 @@
-# Obadiah Profile
 
 ## Obadiah
 

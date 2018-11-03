@@ -1,4 +1,3 @@
-# Eliphaz, Bildad, And Zophar Profile
 
 ## Eliphaz, Bildad, and Zophar
 

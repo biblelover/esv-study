@@ -1,4 +1,3 @@
-# Silas Profile
 
 ## Silas
 

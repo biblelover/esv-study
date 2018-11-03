@@ -1,4 +1,3 @@
-# Isaac Profile
 
 ## Isaac
 

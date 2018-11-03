@@ -1,4 +1,3 @@
-# Ananias And Sapphira Profile
 
 ## Ananias and Sapphira
 

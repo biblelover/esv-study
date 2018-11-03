@@ -1,4 +1,3 @@
-# Isaiah Profile
 
 ## Isaiah
 

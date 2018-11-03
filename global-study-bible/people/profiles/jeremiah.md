@@ -1,4 +1,3 @@
-# Jeremiah Profile
 
 ## Jeremiah
 

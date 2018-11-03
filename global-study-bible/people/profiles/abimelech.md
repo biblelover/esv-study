@@ -1,4 +1,3 @@
-# Abimelech Profile
 
 ## Abimelech
 

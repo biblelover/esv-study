@@ -1,4 +1,3 @@
-# Samuel Profile
 
 ## Samuel
 

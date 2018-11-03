@@ -1,4 +1,3 @@
-# Rahab Profile
 
 ## Rahab
 

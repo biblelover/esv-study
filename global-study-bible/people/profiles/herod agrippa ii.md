@@ -1,4 +1,3 @@
-# Herod Agrippa Ii Profile
 
 ## Herod Agrippa II
 

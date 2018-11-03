@@ -1,4 +1,3 @@
-# Samson Profile
 
 ## Samson
 

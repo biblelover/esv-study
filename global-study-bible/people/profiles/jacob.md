@@ -1,4 +1,3 @@
-# Jacob Profile
 
 ## Jacob
 

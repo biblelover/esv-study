@@ -1,4 +1,3 @@
-# Ahab Profile
 
 ## Ahab
 

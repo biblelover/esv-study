@@ -1,4 +1,3 @@
-# Aquila And His Wife, Priscilla Profile
 
 ## Aquila and his wife, Priscilla
 

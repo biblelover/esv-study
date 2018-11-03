@@ -1,4 +1,3 @@
-# Melchizedek Profile
 
 ## Melchizedek
 

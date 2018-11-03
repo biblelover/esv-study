@@ -1,0 +1,25 @@
+
+# Introduction to Mark
+
+## Timeline
+
+ [ <img src="https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/mediumhttps://www.esv.org/chart_41_timeline.png" alt="Timeline" width="700" height="69"/> ](https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/big/chart_41_timeline.png) 
+
+## Author, Date, and Recipients
+
+The apostle Peter passed on reports of the words and deeds of Jesus to his attendant, John Mark, who wrote this Gospel for the wider church as the record of Peter’s apostolic testimony. The book was likely written from Rome during the mid- to late-50s a.d. (though the mid- or late-60s is also possible). Mark’s audience, largely unfamiliar with Jewish customs, needed to become familiar with such customs in order to understand the coming of Jesus as the culmination of God’s work with Israel and the entire world, so Mark explains them.
+
+## Purpose and Theme
+
+The ultimate purpose and theme of Mark’s Gospel is to present and defend Jesus’ universal call to discipleship. Mark returns often to this theme, categorizing his main audience as either followers or opponents of Jesus. Mark presents and supports this call to discipleship by narrating the identity and teaching of Jesus. For Mark, discipleship is essentially a relationship with Jesus, not merely following a certain code of conduct. Fellowship with Jesus marks the heart of the disciple’s life, and this fellowship includes trusting Jesus, confessing him, observing his conduct, following his teaching, and being shaped by a relationship with him. Discipleship also means being prepared to face the kind of rejection that Jesus faced.
+
+## Key Themes
+1. Jesus seeks to correct messianic expectations and misunderstandings ([1:25, 34, 44; 3:12; 4:10–12; 5:18–19, 43; 8:30; 9:9](https://www.esv.org/Mark+1%3A25%2C+1%3A34%2C+1%3A44%2C+3%3A12%2C+4%3A10%E2%80%9312%2C+5%3A18%E2%80%9319%2C+5%3A43%2C+8%3A30%2C+9%3A9/)). 1. Jesus is man ([3:5; 4:38; 6:6; 7:34; 8:12, 33; 10:14; 11:12; 14:33–42](https://www.esv.org/Mark+3%3A5%2C+4%3A38%2C+6%3A6%2C+7%3A34%2C+8%3A12%2C+8%3A33%2C+10%3A14%2C+11%3A12%2C+14%3A33%E2%80%9342/)). 1. Jesus is the Son of God ([1:11; 3:11; 5:7; 8:38; 9:7; 12:6–8; 13:32; 14:36, 61; 15:39](https://www.esv.org/Mark+1%3A11%2C+3%3A11%2C+5%3A7%2C+8%3A38%2C+9%3A7%2C+12%3A6%E2%80%938%2C+13%3A32%2C+14%3A36%2C+14%3A61%2C+15%3A39/)). 1. Jesus is the Son of Man with all power and authority ([1:16–34; 2:3–12, 23–28; 3:11; 4:35–41; 6:45–52; 7:1–23; 10:1–12](https://www.esv.org/Mark+1%3A16%E2%80%9334%2C+2%3A3%E2%80%9312%2C+2%3A23%E2%80%9328%2C+3%3A11%2C+4%3A35%E2%80%9341%2C+6%3A45%E2%80%9352%2C+7%3A1%E2%80%9323%2C+10%3A1%E2%80%9312/)). 1. Jesus as the Son of Man must suffer ([8:31; 10:45; 14:21, 36](https://www.esv.org/Mark+8%3A31%2C+10%3A45%2C+14%3A21%2C+14%3A36/)). 1. Jesus is Lord ([2:28; 12:35–37; 14:62](https://www.esv.org/Mark+2%3A28%2C+12%3A35%E2%80%9337%2C+14%3A62/)). 1. Jesus calls his followers to imitate him in humble service, self-denial, and suffering ([8:34–38; 9:35–37; 10:35–45](https://www.esv.org/Mark+8%3A34%E2%80%9338%2C+9%3A35%E2%80%9337%2C+10%3A35%E2%80%9345/)). 1. Jesus teaches on the kingdom of God, and implies that God continues to call a people to himself (compare [1:15; 9:1; 14:25; 15:43](https://www.esv.org/Mark+1%3A15%2C+9%3A1%2C+14%3A25%2C+15%3A43/)). 
+## Outline
+1. Introduction ([1:1–15](https://www.esv.org/Mark+1%3A1%E2%80%9315/)) 1. Demonstration of Jesus’ Authority ([1:16–8:26](https://www.esv.org/Mark+1%3A16%E2%80%938%3A26/)) <ol><li class="outline">Jesus’ early Galilean ministry ([1:16–3:12](https://www.esv.org/Mark+1%3A16%E2%80%933%3A12/)) 1. Jesus’ later Galilean ministry ([3:13–6:6](https://www.esv.org/Mark+3%3A13%E2%80%936%3A6/)) 1. Work beyond Galilee ([6:7–8:26](https://www.esv.org/Mark+6%3A7%E2%80%938%3A26/)) 1. Journey to Jerusalem ([8:27–10:52](https://www.esv.org/Mark+8%3A27%E2%80%9310%3A52/)) 1. Entering and judging Jerusalem ([11:1–13:37](https://www.esv.org/Mark+11%3A1%E2%80%9313%3A37/)) 1. Death and resurrection in Jerusalem ([14:1–16:8](https://www.esv.org/Mark+14%3A1%E2%80%9316%3A8/)) 1. “Longer ending of Mark” ([16:9–20](https://www.esv.org/Mark+16%3A9%E2%80%9320/); see note)] 
+## The Setting of Mark
+
+The events in the book of [Mark](https://www.esv.org/Mark+1%3A1%E2%80%9316%3A20/) take place almost entirely within Palestine, from Caesarea Philippi in the north to Beersheba in the south. During this time Palestine was ruled by the Roman Empire. The book opens with Jesus’ baptism by John during the rule of Pontius Pilate and the tetrarchs Antipas and Philip. It closes with Jesus’ death and resurrection about three years later.
+
+ [ <img src="https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/mediumhttps://www.esv.org/map_41_01.jpg" alt="The Setting of Mark" width="496" height="700"/> ](https:https://www.esv.org//static.esvmedia.orghttps://www.esv.org/media/esv-global-study-biblehttps://www.esv.org/images/big/map_41_01.jpg) 
+

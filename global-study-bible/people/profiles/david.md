@@ -1,4 +1,3 @@
-# David Profile
 
 ## David
 

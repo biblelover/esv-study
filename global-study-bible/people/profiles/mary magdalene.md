@@ -1,4 +1,3 @@
-# Mary Magdalene Profile
 
 ## Mary Magdalene
 

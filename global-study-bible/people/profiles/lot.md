@@ -1,4 +1,3 @@
-# Lot Profile
 
 ## Lot
 

@@ -1,4 +1,3 @@
-# Baruch Profile
 
 ## Baruch
 

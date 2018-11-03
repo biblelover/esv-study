@@ -1,4 +1,3 @@
-# Shadrach, Meshach, And Abednego Profile
 
 ## Shadrach, Meshach, and Abednego
 

@@ -1,4 +1,3 @@
-# Jeroboam Profile
 
 ## Jeroboam
 

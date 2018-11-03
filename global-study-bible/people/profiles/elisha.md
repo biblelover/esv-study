@@ -1,4 +1,3 @@
-# Elisha Profile
 
 ## Elisha
 

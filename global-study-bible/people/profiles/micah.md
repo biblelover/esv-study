@@ -1,4 +1,3 @@
-# Micah Profile
 
 ## Micah
 

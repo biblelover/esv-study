@@ -1,4 +1,3 @@
-# Caiaphas Profile
 
 ## Caiaphas
 

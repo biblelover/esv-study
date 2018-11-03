@@ -1,4 +1,3 @@
-# Amos Profile
 
 ## Amos
 

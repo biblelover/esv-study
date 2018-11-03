@@ -1,4 +1,3 @@
-# Zechariah Profile
 
 ## Zechariah
 

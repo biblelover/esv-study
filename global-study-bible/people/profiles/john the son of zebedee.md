@@ -1,4 +1,3 @@
-# John The Son Of Zebedee Profile
 
 ## John the son of Zebedee
 

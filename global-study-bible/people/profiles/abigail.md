@@ -1,4 +1,3 @@
-# Abigail Profile
 
 ## Abigail
 

@@ -1,4 +1,3 @@
-# Haggai Profile
 
 ## Haggai
 

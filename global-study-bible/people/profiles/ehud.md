@@ -1,4 +1,3 @@
-# Ehud Profile
 
 ## Ehud
 

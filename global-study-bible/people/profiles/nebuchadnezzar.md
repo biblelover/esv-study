@@ -1,4 +1,3 @@
-# Nebuchadnezzar Profile
 
 ## Nebuchadnezzar
 

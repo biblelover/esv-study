@@ -1,4 +1,3 @@
-# Rebekah Profile
 
 ## Rebekah
 

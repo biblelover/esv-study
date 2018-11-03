@@ -1,4 +1,3 @@
-# Hannah Profile
 
 ## Hannah
 

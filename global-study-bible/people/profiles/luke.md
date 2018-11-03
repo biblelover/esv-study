@@ -1,4 +1,3 @@
-# Luke Profile
 
 ## Luke
 
