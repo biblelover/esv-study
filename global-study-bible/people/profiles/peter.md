@@ -1,0 +1,6 @@
+# Peter Profile
+
+## Peter
+
+**Peter** and his brother Andrew were from the city of Bethsaida. The two fishermen were the first disciples called by Jesus, and they immediately left everything to follow him. Jesus gave Simon the name Cephas, or Peter, which means “rock” ([John 1:42](https://www.esv.org/John+1%3A42/)). Peter, James, and John became the close inner circle among the 12 disciples. Always listed first among the Twelve, Peter often served as their spokesman. He was with Jesus during the key events of his ministry, including the Transfiguration. Peter was one of Jesus’ most outspoken and passionate followers, though at times that enthusiasm was misplaced and needed a word of correction from Jesus ([Matt. 19:27–30; 26:31–35, 69–75](https://www.esv.org/Matthew+19%3A27%E2%80%9330%2C+26%3A31%E2%80%9335%2C+26%3A69%E2%80%9375/)). Peter preached boldly at Pentecost. He was arrested multiple times, and even imprisoned, for preaching in the name of Jesus, but he remained faithful ([Acts 12:1–19](https://www.esv.org/Acts+12%3A1%E2%80%9319/)). Peter wrote the two NT letters that bear his name. He died a martyr in Rome, under Nero. **([Matthew 16:13–20](https://www.esv.org/Matthew+16%3A13%E2%80%9320/))**
+

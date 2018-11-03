@@ -1,0 +1,6 @@
+# Timothy Profile
+
+## Timothy
+
+**Timothy** was from Lystra in South Galatia and was the son of a Jewish mother and a Greek father. Timothy, along with his mother and grandmother, may have been led to Christ during Paul’s first visit to Lystra. Timothy joined Paul as a coworker when Paul passed through his hometown early on his second missionary journey. Paul trusted Timothy immensely, and sent him on a number of important missions to strengthen and encourage churches as well as to deal with doctrinal and theological problems. Although he was young, Timothy proved himself to be a godly and effective leader. In [Philippians 2:19–24](https://www.esv.org/Philippians+2%3A19%E2%80%9324/), Paul describes Timothy as an example of a Christ-centered life. Paul also referred to Timothy by the lofty title “God’s coworker,” emphasizing his credentials ([1 Thess. 3:2](https://www.esv.org/1+Thessalonians+3%3A2/)). Two of the NT epistles are letters written from Paul to Timothy. **([Philippians 2:19–22](https://www.esv.org/Philippians+2%3A19%E2%80%9322/))**
+

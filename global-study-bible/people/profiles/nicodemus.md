@@ -1,0 +1,6 @@
+# Nicodemus Profile
+
+## Nicodemus
+
+**Nicodemus** was a Pharisee and a member of the powerful Jewish governing body, the Sanhedrin. He had seen the signs performed by Jesus and recognized that God was with him. Possibly to avoid being seen by his peers, Nicodemus came to Jesus at night to speak with him. Although he was a “teacher of Israel” ([3:10](https://www.esv.org/John+3%3A10/)) and knew the OT Scriptures, Nico­demus was mystified when Jesus told him that he must be born again. It was while talking with Nicodemus that Jesus made the statement recorded in [3:16](https://www.esv.org/John+3%3A16/), perhaps the most well-known summary of the gospel in all of Scripture. The Bible does not say whether Nicodemus responded to the gospel on this occasion. Later, however, Nicodemus defended Jesus when others wanted to arrest him ([7:50–52](https://www.esv.org/John+7%3A50%E2%80%9352/)). After Jesus’ death on the cross, Nicodemus helped Joseph of Arimathea prepare Jesus’ body for burial ([19:39–40](https://www.esv.org/John+19%3A39%E2%80%9340/)). **([John 3:1–21](https://www.esv.org/John+3%3A1%E2%80%9321/))**
+

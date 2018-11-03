@@ -1,0 +1,6 @@
+# John The Son Of Zebedee Profile
+
+## John the son of Zebedee
+
+**John the son of Zebedee** was one of Jesus’ 12 disciples, along with his brother James. John was a fisherman. He and James were in business with fellow disciples Simon Peter and Andrew ([Luke 5:10](https://www.esv.org/Luke+5%3A10/)). John was a close friend of Jesus and one of the inner circle of disciples. He is probably “the other disciple” ([John 18:16](https://www.esv.org/John+18%3A16/)) and “the one whom Jesus loved” ([20:2](https://www.esv.org/John+20%3A2/)). This “other disciple” reclined next to Jesus at the Last Supper ([13:23](https://www.esv.org/John+13%3A23/)). He stood at the foot of the cross, where Jesus entrusted his mother Mary to John’s care ([19:26–27](https://www.esv.org/John+19%3A26%E2%80%9327/)). Along with Peter he witnessed the empty tomb on the first Easter morning ([20:2–10](https://www.esv.org/John+20%3A2%E2%80%9310/)). He also talked with the resurrected Jesus ([21:7, 20](https://www.esv.org/John+21%3A7%2C+21%3A20/)). In addition to the Gospel bearing his name, John wrote the books of 1, 2 and [3 John](https://www.esv.org/3+John+1%E2%80%9315/), and Revelation. **([John 13:23](https://www.esv.org/John+13%3A23/))**
+
