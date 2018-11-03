@@ -56,7 +56,7 @@ if __name__=="__main__":
 
     index = 1
     for book, data in result.items():
-        path = "global-study-bible/facts"
+        path = "global-study-bible/facts/books"
         
 
         if not os.path.exists(path):
