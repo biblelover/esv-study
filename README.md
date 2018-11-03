@@ -1,2 +1,3 @@
-# esv-study
+# ESV STUDY
+
 ESV Study resources
